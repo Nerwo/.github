@@ -24,7 +24,7 @@ Are you ready to dive into the world of Web3 or take your existing venture to th
 
 Visit our [website](https://www.nerwo.xyz/) for more information and to get started.
 
-Connect with us on [Twitter](https://twitter.com/nerwoxyz/) | [Discord](https://discord.gg/hwxX7zS464)
+Connect with us on [Twitter](https://twitter.com/nerwoxyz) | [Discord](https://discord.gg/hwxX7zS464)
 
 ---
 
